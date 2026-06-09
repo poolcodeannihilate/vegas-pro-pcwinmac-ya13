@@ -1,4 +1,4 @@
-# 
+# Intelligent Vegas Pro outils pour Mac OS | Gratuit Vegas Pro outils pour PC Windows. Avec animation par images clés et suivi de mouvement — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
